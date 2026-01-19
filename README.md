@@ -15,4 +15,4 @@ Here are some ideas to get you started:
 //- 📫 How to reach me: ...
 -->
 - 😄 Pronouns: ... He/Him
-- ⚡ Fun fact: ... Astronomy
+- ⚡ Fun fact: ... I like astronomy, astrophysics, and geometric optics (the physics of the behavior of light when passing through or reflecting off physical media such as lenses and mirrors).
